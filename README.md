@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Cyclone!
 - 👀 I’m interested in coding and music.
-- 🌱 I’m currently learning block coding on Scratch, and music on BandLab and FL Studio Mobile!
+- 🌱 I’m currently learning block coding on Scratch, and music on FL Studio Mobile!
 - 💞️ I’m looking to collaborate on FNF songs and stuff
 - 📫 You can reach me through Scratch, BandLab, Roblox, Spotify, Geometry Dash, Nintendo Switch, and Minecraft!
 - 😄 Pronouns: He/Him
